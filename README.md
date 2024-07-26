@@ -2,7 +2,8 @@
 
 _um colono tentando fazer programação_
 
-_
+![](https://tenor.com/bkvYb.gif)
+
 
 
 
