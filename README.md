@@ -2,7 +2,7 @@
 
 _um colono tentando fazer programação_
 
-![](https://tenor.com/pt-BR/view/agronomia-agroboy-agro-trator-enxada-gif-17243441)
+![](https://media1.tenor.com/m/3354hdPb_hcAAAAd/agronomia-agroboy.gif)
 
 
 
